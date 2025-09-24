@@ -44,4 +44,4 @@ listening lists from A
 
 Девочка Иксдец https://youtu.be/-B6NDjtWlP4?list=RD-B6NDjtWlP4
 
-Маленькая лягушечка <a href="https://duckduckgo.com/?t=ftsa&q=second+frog&ia=web" target="_blank">`second frog`</a> будет квак-квак и териончиков веерами <a href="https://duckduckgo.com/?t=ftsa&q=Therion+circumflexum&ia=web">`Therion circumflexum`</a> препротивнейшая био тварюка https://rutracker.org/forum/viewtopic.php?t=5281988 дискография <b><i>Therion</i></b>, не забывайте помогать музыкантом денюжками ресурсами и прочим им ценным!
+Маленькая лягушечка <a href="https://duckduckgo.com/?t=ftsa&q=second+frog&ia=web" target="_blank">`second frog`</a> будет квак-квак и териончиков веерами <a href="https://duckduckgo.com/?t=ftsa&q=Therion+circumflexum&ia=web" target="_blank">`Therion circumflexum`</a> препротивнейшая био тварюка https://rutracker.org/forum/viewtopic.php?t=5281988 дискография <b><i>Therion</i></b>, не забывайте помогать музыкантом денюжками ресурсами и прочим им ценным!
