@@ -49,3 +49,5 @@ listening lists from A
 https://en.wikipedia.org/wiki/Ichneumonidae
 
 Copied около 2025-09-24T03:58:13,865304998+00:00: "They play an important role as regulators of insect populations, both in natural and semi-natural systems, making them promising agents for biological control https://en.wikipedia.org/wiki/Biological_pest_control . `[` 5 https://en.wikipedia.org/wiki/Ichneumonidae#cite_note-KlopfsteinEtAl-5 `]`
+
+МОЖНО НА LOOP https://www.youtube.com/watch?v=-B6NDjtWlP4&list=PLR1mqFMPJdDLpLJbLQEBzUpwKYZWa0B9V&index=1 Девочка Иксдец
