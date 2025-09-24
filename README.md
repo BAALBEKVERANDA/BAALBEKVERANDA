@@ -45,3 +45,7 @@ listening lists from A
 Девочка Иксдец https://youtu.be/-B6NDjtWlP4?list=RD-B6NDjtWlP4
 
 Маленькая лягушечка <a href="https://duckduckgo.com/?t=ftsa&q=second+frog&ia=web" target="_blank">`second frog`</a> будет квак-квак и териончиков веерами <a href="https://duckduckgo.com/?t=ftsa&q=Therion+circumflexum&ia=web" target="_blank">`Therion circumflexum`</a> препротивнейшая био тварюка https://rutracker.org/forum/viewtopic.php?t=5281988 дискография <b><i>Therion</i></b>, не забывайте помогать музыкантом денюжками ресурсами и прочим им ценным!
+
+https://en.wikipedia.org/wiki/Ichneumonidae
+
+Copied около 2025-09-24T03:58:13,865304998+00:00: "They play an important role as regulators of insect populations, both in natural and semi-natural systems, making them promising agents for biological control https://en.wikipedia.org/wiki/Biological_pest_control . `[` 5 https://en.wikipedia.org/wiki/Ichneumonidae#cite_note-KlopfsteinEtAl-5 `]`
