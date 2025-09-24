@@ -43,3 +43,5 @@ https://github.com/BAALBEKVERANDA/BAALBEKVERANDA/blob/MAESTRO/README.md
 listening lists from A
 
 Девочка Иксдец https://youtu.be/-B6NDjtWlP4?list=RD-B6NDjtWlP4
+
+Маленькая лягушечка `second frog` будет квак-квак и териончиков веерами `Therion circumflexum` препротивнейшая био тварюка https://rutracker.org/forum/viewtopic.php?t=5281988 дискография Therion
